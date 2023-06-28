@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Alee
+- 👀 I’m interested in Scripting
+- 📫 How to reach me ez
